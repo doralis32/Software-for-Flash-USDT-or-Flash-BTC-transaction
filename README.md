@@ -56,6 +56,11 @@ Unlock exclusive premium features and updates.
 ### 📩 **Contact Us**  
 - **Telegram:** [@Henryphilip-Software_King](https://t.me/softwarehenry)  
 - **Updates Channel:** [Join Here](https://t.me/Softwarehenry)  
+📨 [Live Chat](https://t.me/softwarehenry)
+
+[LinkedIn](https://www.linkedin.com/in/henry-philip-301487297?trk=contact-info)
+
+🛠️[Developer](https://t.me/softwarehenry)
 
 ---  
 
